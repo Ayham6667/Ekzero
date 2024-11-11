@@ -1,0 +1,2 @@
+# Ekzero
+for elzero school
